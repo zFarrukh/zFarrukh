@@ -6,6 +6,6 @@
 - 👯 I’m looking to collaborate on ... React js
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... [My telegram](https://t.me/yunero)
-- 😄 Pronouns: ... He/Him
+- 😄 Pronouns: ... He / Him
 - ⚡ Fun fact: ... I love chess
 
