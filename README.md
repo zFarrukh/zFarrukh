@@ -7,5 +7,5 @@
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... [My telegram](https://t.me/yunero)
 - 😄 Pronouns: ... He / Him
-- ⚡ Fun fact: ... I love chess
+- ⚡ Fun fact: ... I love playing chess
 
